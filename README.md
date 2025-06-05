@@ -1,6 +1,5 @@
 
 # 💫 Hi 👋, I'm Prithwi Kumar 
-**A passionate Full Stack Developer || DevOps Engineer || Blockchain **
 
 Email Me 👉 ✉️ **prithwikumar871@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
